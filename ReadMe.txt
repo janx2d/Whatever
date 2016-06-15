@@ -1,1 +1,4 @@
 yeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeaaaaaaaaaaaaaaaaaaa
+
+
+Reymond is gay. Cando is a dick yeeeeeeee
